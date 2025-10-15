@@ -1,4 +1,4 @@
 # People
 Kinga Cichecka
-Małogorzata Misztal
+Małgorzata Misztal
 Maria Cęcek
